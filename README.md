@@ -3,7 +3,7 @@
 **Location:** Utah, USA  
 **Clearance Level:** SECRET  
 **Current Role:** Facility Security Specialist, Spartronics Logan  
-**Pay Rate:** $21/hr (actively seeking fair-market adjustment)  
+**Current Title:** Facility Security Specialist (seeking advancement aligned with AFSO-level duties)  
 **Looking for:** Industrial Security roles | AFSO opportunities | Full-scope classified program management  
 
 ---
@@ -65,16 +65,16 @@ While officially titled *Facility Security Specialist*, I functionally oversee t
 ## 🎯 Career Objectives
 
 - Official promotion to **Assistant Facility Security Officer (AFSO)** or equivalent
-- Pay adjustment in line with NCMS regional benchmarks ($28–32/hr)
 - Continued growth into FSO and Corporate Security leadership roles
-- Advocate for better internal equity in security compensation
 
 ---
 
 ## 📫 Contact
 
-- 📧 Email: Levi.hammer43@gmail.com
+- 📧 Email: levi.hammer43@gmail.com
 - 🔒 Clearance: Active Secret
 - 🧩 DCSA/NISPOM-Compliant | ITAR Knowledgeable | High Accountability
 
 ---
+
+### “No Clearance? No Secret Handshake.”
