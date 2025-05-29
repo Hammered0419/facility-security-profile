@@ -3,7 +3,7 @@
 **Location:** Utah, USA  
 **Clearance Level:** SECRET  
 **Current Role:** Facility Security Specialist, Spartronics Logan  
-**Current Title:** Facility Security Specialist (seeking advancement aligned with AFSO-level duties)  
+**Current Title:** Facility Security Specialist 
 **Looking for:** Industrial Security roles | AFSO opportunities | Full-scope classified program management  
 
 ---
@@ -47,8 +47,6 @@ While officially titled *Facility Security Specialist*, I functionally oversee t
 ---
 
 ## 🧾 Certifications
-
-(Include files or link to hosted PDFs in a /certs folder)
 
 - Insider Threat Program Training
 - SIMS Administrator Certification
