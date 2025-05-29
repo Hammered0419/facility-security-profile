@@ -4,7 +4,6 @@
 **Clearance Level:** SECRET  
 **Current Role:** Facility Security Specialist, Spartronics Logan  
 **Current Title:** Facility Security Specialist 
-
 **Looking for:** Industrial Security roles | AFSO opportunities | Full-scope classified program management  
 
 ---
